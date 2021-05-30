@@ -1,4 +1,6 @@
-### Hi there 👋
+### Hi there 👋 I'm fairly new to this community and am very excited to be able to work with all of you! Thank you all for your time and for the opportunity!
+I am looking for tips and help of how to get this thing rolling! I have 6 children and care for my older mother-in-law and my two nieces! 
+You can reach me at treyhiers94@gmail.com or (940) 585-8721!
 
 <!--
 **TreyHiers94/TreyHiers94** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
